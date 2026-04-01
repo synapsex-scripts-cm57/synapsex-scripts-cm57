@@ -1,4 +1,4 @@
-
+upd synapse x executor Scripts | speed + no-cd is your go-to resource for synapse x executor domination. Featuring speed and no-cd, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
